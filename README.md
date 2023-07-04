@@ -1,0 +1,1 @@
+# fc_28_06_2023_blr_mnglre_udupi_gokarna
